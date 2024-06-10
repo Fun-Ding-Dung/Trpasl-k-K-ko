@@ -1,1 +1,1 @@
-# Trpasl-k-K-ko
+# Trpaslik-Kako
